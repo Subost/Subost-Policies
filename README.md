@@ -1,4 +1,5 @@
 # Subost-Policies
+
 This is a reminder for everyone who is in our servers to be sure to read them and remember that we reserve all rights in our server including the fact that you can receive punishment for a broken policy regardless if he/she actually read the documents or not. To prevent yourself from not knowing what isn't allowed in all of our servers, go to this Google Document: https://docs.google.com/document/d/1jqpEVwnYjZjZHdHGNY8KZUQtvaSRP7RKdOBKVEK3Pqg/edit?usp=sharing
 Links for the Policies will be located on the single-paged Document. Thank you for tuning in!
 
